@@ -1,2 +1,2 @@
 # 🪡 | Caminho | 🪡
- Caminho às minhas redes sociais.
+ 🪡 | Caminho às minhas redes sociais. | 🪡
